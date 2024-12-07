@@ -1,5 +1,5 @@
 ---
-title: facing climate change challenges with scientific knowledge and practical solutions
+title: Facing climate change challenges with scientific knowledge and practical solutions
 
 ---
 
